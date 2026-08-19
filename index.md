@@ -118,4 +118,4 @@ La date de dernière mise à jour est indiquée en haut de cette page.
 
 Pour toute question concernant cette politique de confidentialité ou SavedTempo :
 
-**E-mail : jb.info180@gmail.com
+**E-mail : saved.tempo@gmail.com
